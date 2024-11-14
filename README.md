@@ -1,0 +1,3 @@
+YOU CAN CHANGE ANYTHING YOU WANT, BECAUSE THIS SCRIPT IS JUST FOR MY PRACTICE.
+
+follow me : @tremorcyberteam or @zannasgor_
